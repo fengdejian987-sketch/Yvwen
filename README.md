@@ -1,3 +1,14 @@
+[单核心公式+多模块架构「全自动(1).pdf](https://github.com/user-attachments/files/28440493/%2B.1.pdf)
+[好的 ，我来为你生成一个 医_071039.docx](https://github.com/user-attachments/files/28440487/_071039.docx)
+[单核心公式+多模块架构「全自动(1).pdf](https://github.com/user-attachments/files/28440483/%2B.1.pdf)
+[已为你整理好单核心公式+多模块.docx](https://github.com/user-attachments/files/28440477/%2B.docx)
+[轻资产授权盈利+重资产产业链核.pdf](https://github.com/user-attachments/files/28440475/%2B.pdf)
+[轻资产授权盈利与重资产产业链核(1).docx](https://github.com/user-attachments/files/28440469/1.docx)
+[轻资产授权盈利与重资产产业链核(1).pdf](https://github.com/user-attachments/files/28440465/1.pdf)
+[单核心公式+多模块架构「全自动(1).pdf](https://github.com/user-attachments/files/28440461/%2B.1.pdf)
+[将工业级训练脚本升级为企业级训.docx](https://github.com/user-attachments/files/28440457/default.docx)
+[已为你整理好单核心公式+多模块.docx](https://github.com/user-attachments/files/28440454/%2B.docx)
+[工业级四维空间扫描校准模块 核(2).docx](https://github.com/user-attachments/files/28440452/2.docx)
 
 软件模型
 工业级四维空间扫描校准模块 应用案例集（全行业落地版）
